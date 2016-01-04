@@ -48,7 +48,7 @@ Voy a las oficinas de Gilmar y hablo con su director para firmar el contrato de 
 
 
 
-El director después de intentar disuadirme para que firmara el contrato de arras exactamente igual que el borrador abusivo me dice que hablaría con el vendedor, pero que no me aseguraba que el vendedor aceptara eso, que ya me diría. Me voy sin firmar el contrato de arras a la espera de su confirmación. A las pocas horas me llama uno de sus comerciales y me indicia que sí, que esperarían unas semanas. 
+El director, Fernando Rojas, me dice que hablaría con el vendedor pero que no me aseguraba que el vendedor aceptara eso, que ya me diría. Me voy sin firmar el contrato de arras a la espera de su confirmación. A las pocas horas me llama uno de sus comerciales y me indicia que sí, que esperarían unas semanas. 
 
 
 
@@ -60,9 +60,17 @@ Mientras tanto sigo la conversación con los bancos y solicito varias hipotecas.
 Antes de confirmárselo a Gilmar, recibo una llamada suya en la que me dicen que han dado el piso a otro comprador y que lo sentían… pero que tampoco sabían si me iban a devolver mi señal. **Rompen el contrato pactado y además se quedan con mi señal**. *Perdona?*
 
 
-Les envío un correo comentando todo (a modo burofax) y exigiendo la devolución integra de mi señal. No pasan ni 10 minutos y me llama el director, **Fernando Rojas**, diciendo que el problema era mío por no haber firmado el contrato de arras (el contrato abusivo que indicaba que tendría que haber hecho el ingreso de 22.000 EUR hace una semana), que yo no era su cliente y que **se desentendían de todo**. Que había ingresado esos 2.000 EUR en la cuenta de un señor, pero sin mediación alguna suya. Que me olvidara de mi dinero.
+Les envío un correo comentando todo (a modo burofax) y exigiendo la devolución integra de mi señal. No pasan ni 10 minutos y me llama el director, **Fernando Rojas**, diciendo que el problema era mío por no haber firmado el contrato de arras (contrato que estaba a la espera de su confirmación), que yo no era su cliente y que **se desentendían de todo**. Que había ingresado esos 2.000 EUR en la cuenta de un señor, pero sin mediación alguna suya. Que me olvidara de mi dinero.
 
 Ya he puesto una reclamación en la **hoja de reclamaciones** de Gilmar y ahora me dirijo a poner una **denuncia en la policía** tanto a Gilmar (la agencia) como a Juan Muiño Insua (el vendedor y el que se supone que retiene mi señal) por estafa.
+
+## Actualización I
+Me he personado en la oficina de Embajadores hoy, día 4 de Enero de 2016, para pedirles firmar el contrato de arras. Ante su negativa he pedido la hoja de reclamaciones.
+
+Se han negado de nuevo a dármela, así que he tenido que llamar a la Policía.
+> Ellos: No te podemos dar la hoja de reclamaciones.
+> Yo: Llamaré a la policía. Ellos: OK.
+> [Viene la policía] Ellos: Ah? Que nos estabas pidiendo la hoja de reclamaciones? Toma
 
 
 Os mantendré informados!
