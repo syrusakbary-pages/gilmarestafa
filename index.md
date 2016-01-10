@@ -72,5 +72,8 @@ Se han negado de nuevo a dármela, así que he tenido que llamar a la Policía.
 > Yo: Llamaré a la policía. Ellos: OK.
 > [Viene la policía] Ellos: Ah? Que nos estabas pidiendo la hoja de reclamaciones? Toma
 
+## Actualización II
+He puesto la reclamación a Gilmar y toda la documentación en manos de [Facua Madrid](http://www.facua.org/madrid), para lo gestionen mientras yo estoy en el extranjero.
 
+No se saldrán con la suya!
 Os mantendré informados!
